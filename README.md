@@ -1,1 +1,1 @@
-# LightofWall
+# LawofLight
